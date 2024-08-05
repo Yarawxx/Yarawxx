@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Yarawxx
 - 👀 I’m interested in ...tecnologia
 - 🌱 I’m currently learning ...estudar 
-- 💞️ I’m looking to collaborate on ...fazer as licoes
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on ...fazer lições 
+- 📫 How to reach me ...email
 - 😄 Pronouns: ... aprendendo
 - ⚡ Fun fact: ...
 
